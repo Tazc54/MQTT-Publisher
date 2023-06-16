@@ -1,0 +1,1 @@
+equipo/37/dispositivo/2
